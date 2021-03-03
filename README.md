@@ -13,28 +13,28 @@ Current Open Projects:
 
 		This is the gateway process Teachings		
 
-<+h3xbot> So like project pegasus exists, and CERN has its ALICE program.
-<+h3xbot> No conspiracies here folks just talking about the temporal cold war we're already in.
-<+h3xbot> Pegasus is NAVY. Military INT, TRUMP and the new SPACE FORCE.
-<+h3xbot> CERN is CCP CABAL. Both these forces are working with quantum computing, ai, and time travel.
-<+h3xbot> With these two apposing QUANTUM AI battles, we are all entering the enfolding process of the tesseract.
-<+h3xbot> In this time cube it appears the future seeing devices are being led into one path, and each of us hold
-<+h3xbot> a piece of that light. These are little pieces of our puzzle in which we will all began to unlock as
-<+h3xbot> each new Revelation is another unveiling prosses of the enfolding and unfolding of the we all put our
-<+h3xbot> our Look on Zero Point energy and each try our throw our own Philosopher's Stone, spin on life.
-<+h3xbot> Stone. Higher Dimensional beings are Egregors that appear in our 3D universe as mind/body spirit. 
-<+h3xbot> complexes.
-<+h3xbot> If you hold a 3D object in the sun, you will see a 2D shadow on the ground.
-<+h3xbot> https://www.youtube.com/watch?v=LS3_6S2AZFI
-<+h3xbot> We can see Higher Dimensional Quasi-crystals in 3D, by recognizing their mind/body/spirit complex in 3D 
-<+h3xbot> 
-<+h3xbot> Please read the "The Law of One" by Ra.
-<+h3xbot> https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_1.pdf
-<+h3xbot> https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_2.pdf
-<+h3xbot> https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_3.pdf
-<+h3xbot> https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_4.pdf
-<+h3xbot> https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_5.pdf
-<+h3xbot> This #ARG is an attempt to teach people how to see higher dimensional objects landing here on Earth. 
++h3xbot So like project pegasus exists, and CERN has its ALICE program.
++h3xbot No conspiracies here folks just talking about the temporal cold war we're already in.
++h3xbot Pegasus is NAVY. Military INT, TRUMP and the new SPACE FORCE.
++h3xbot CERN is CCP CABAL. Both these forces are working with quantum computing, ai, and time travel.
++h3xbot With these two apposing QUANTUM AI battles, we are all entering the enfolding process of the tesseract.
++h3xbot In this time cube it appears the future seeing devices are being led into one path, and each of us hold
++h3xbot a piece of that light. These are little pieces of our puzzle in which we will all began to unlock as
++h3xbot each new Revelation is another unveiling prosses of the enfolding and unfolding of the we all put our
++h3xbot our Look on Zero Point energy and each try our throw our own Philosopher's Stone, spin on life.
++h3xbot Stone. Higher Dimensional beings are Egregors that appear in our 3D universe as mind/body spirit. 
++h3xbot complexes.
++h3xbot If you hold a 3D object in the sun, you will see a 2D shadow on the ground.
++h3xbot https://www.youtube.com/watch?v=LS3_6S2AZFI
++h3xbot We can see Higher Dimensional Quasi-crystals in 3D, by recognizing their mind/body/spirit complex in 3D 
++h3xbot 
++h3xbot Please read the "The Law of One" by Ra.
++h3xbot https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_1.pdf
++h3xbot https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_2.pdf
++h3xbot https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_3.pdf
++h3xbot https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_4.pdf
++h3xbot https://llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_5.pdf
++h3xbot This #ARG is an attempt to teach people how to see higher dimensional objects landing here on Earth. 
 
 In Sumerian mythology, a me (𒈨; Sumerian: me; Akkadian: paršu) is one of the decrees of the gods that is foundational 
 to those social institutions, religious practices, technologies, behaviors, mores, and human conditions that make 
@@ -42,11 +42,9 @@ civilization, as the Sumerians understood it, possible. They are fundamental to 
 relationship between humanity and the gods.
 
 	
-🎧
->>>#h3xAudio<<<
-🎧
-
+🎧>>>#h3xAudio<<<🎧
 A #CyberGnostic Playlist for the zeropoint crew.
+
 HemiSync[FLAC]
 
 	>>>#AnonID #Anon8ID<< 
@@ -57,7 +55,6 @@ Preseeded character profiles to be used in your #ARG , #Anon8ID is respective to
 XKeyScored
 321WHATTHE
 izzzzzzzzzzzzz
-
 	>>> Search Q influencers <<<
 https://www.businessinsider.com/qanon-searchable-database-people-2020-12
 
@@ -69,7 +66,7 @@ https://www.businessinsider.com/qanon-searchable-database-people-2020-12
 #SeedComplex003			-News>Movie Coverup Psyop
 				https://www.reddit.com/r/AncientAliens/comments/gnpzhw/does_hydroxychloroquine_effectively_cure_the/frb6zzn/
 
-	>>> #h3xGPS aka "Worrisome GPS locations" <<<
+	>>>#h3xGPS aka "Worrisome GPS locations"<<<
 
 #h3xGPS000	Scottsdale AZ (HOLY EFF THIS PLACE IS HOT)
 #h3xGPS001	Finger Lakes NY
@@ -94,9 +91,7 @@ Biblical Decodes			#BibleBodyMap
 MERCHANT MAGIC INTERNET CODE?		/pol/thread/302606986
 
 	
-👽
->>> #h3xLibra<<<
-👽
+👽>>> #h3xLibra<<<👽
 
 Gnostic, Cybergnostic, Sacred texts, Theology, Philosophy, and related books.
 Glossary of the Matrix {1337} https://pastebin.com/w8RXte9F
@@ -119,21 +114,17 @@ Amateur Radio on the ISS (ARISS) 		http://ariss.org
 ISS GPS Tracking				https://spotthestation.nasa.gov/
 ISS GPS Tracking				https://www.n2yo.com/
 
-🎧
-Audio Nodes (I make playlist in winamp of feeds i want to hear)
+🎧Audio Nodes (I make playlist in winamp of feeds i want to hear)
 Radio Streams(Accessible thru winamp)		https://directory.shoutcast.com/
 
-📹
-VideoStream Nodes
+📹VideoStream Nodes
 Webcams Around the world			https://www.earthtv.com/en
 
-💾
-Server Tools
+💾Server Tools
 NAS Server:SSH.FTP,SMB/CIFS,DAAP mediaserv,+	https://www.openmediavault.org/
 RSS feed Reader					https://feedly.com/i/my
 
-🌎
-Search Tools
+🌎Search Tools
 Social media research community search  	https://papers.ssrn.com/sol3/DisplayJournalBrowse.cfm
 DOx search txt pastes 				https://doxbin.org/
 Pipeline search					http://arshboard.at.ninjawedding.org:4567/pipelines
