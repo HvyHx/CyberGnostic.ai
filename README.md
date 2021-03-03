@@ -2,7 +2,8 @@
 Torrent Client
 This is the HvyHx Guide to CyberGnostic Mysticism AI node.
 
->>>Main Menu<<<
+Main Menu
+
 Torrents 
 -Torrent 
  !http
